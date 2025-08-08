@@ -15,3 +15,15 @@ Why Choose MANXPOWER for Fire Sprinklers?</h3>
 <li><b>Trusted Brand in Fire Safety – </b>Years of experience delivering dependable fire protection solutions.</li><br>
 <h3>Final Thoughts</h3>
 Fire sprinklers are a vital component of any safety system, and with MANXPOWER <a href="https://manximpex.com/fire-sprinkler-2/" title="Fire sprinklers" alt"Fire sprinklers" <a>Fire sprinklers</a> you get unmatched quality, performance, and peace of mind. When it comes to safeguarding people and property, choosing MANXPOWER means choosing a brand committed to protecting what matters most.<br>
+<h3>Get in touch with us:</h3>
+<b>Buy now online: https://manximpex.com/fire-sprinkler-2/  </b><br>
+<b>E-mail: info@manximpex.com </b><br>
+<b>Contact Number: +91- 7065192900, +91- 7428115550</b><br>
+<b>Address: 3963/9, Ground Floor, City Market, Ajmeri Gate, Delhi 110006 </b><br>
+<h3>Follow us on:</h3>
+<b>Instagram: https://www.instagram.com/manximpex/ </b><br>
+<b>Facebook: https://www.facebook.com/manximpex/ </b><br>
+<b>LinkedIn: https://in.linkedin.com/company/manx-impex </b><br>
+<b>Youtube: https://www.youtube.com/c/ManxImpex  </b><br>
+<h3>Read our blog:</h3>
+<b>How to Conduct a Fire Risk Assessment for Your Property: https://manximpex.com/fire-risk-assessment-for-property/  </b>
